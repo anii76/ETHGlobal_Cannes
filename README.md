@@ -1,1 +1,1 @@
-# ETHGlobal_Cannes
+# ETHGlobal Cannes
